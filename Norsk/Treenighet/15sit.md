@@ -21,17 +21,13 @@ Herre Gud, himmelske Far! Du har berget oss som tror fra syndens urenhet og stor
 
 #### Tekstrekker
 
-* **Historisk**:
-* **NELK 2023**:
-    * **I**: Mika 6,6–8; Fil 1,9–11; Matt 5,38–48
-    * **II:** 2 Mos 19,1–6; Fil 4,10–14; Luk 10,38–42
-    * **III:** Rut 1,7–19; 1 Kor 13,7–13; Joh 15,9–12
-* **DNK 2011**:
-    * **I**: Mika 6,6–8; Fil 1,9–11; Matt 5,38–48
-    * **II:** 2 Mos 19,1–6; Fil 4,10–14; Luk 10,38–42
-    * **III:** Rut 1,7–11.16–19a; 1 Kor 13,7–13; Joh 15,9–12
-* **1977**:
-* **1918**:
+| |I|II|III|
+|--|--|--|--|
+|**Historisk**| | | |
+|**NELK 2023**|Mika 6,6–8; Fil 1,9–11; Matt 5,38–48| 2 Mos 19,1–6; Fil 4,10–14; Luk 10,38–42|Rut 1,7–19; 1 Kor 13,7–13; Joh 15,9–12|
+|**DNK 2011**|Mika 6,6–8; Fil 1,9–11; Matt 5,38–48|2 Mos 19,1–6; Fil 4,10–14; Luk 10,38–42|Rut 1,7–11.16–19a; 1 Kor 13,7–13; Joh 15,9–12|
+|**Norge 1978**| | | |
+|**Norge 1918**| | | |
 
 #### Graduale
 

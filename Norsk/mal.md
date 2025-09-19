@@ -21,14 +21,13 @@ Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ån
 
 #### Tekstrekker
 
-* **Historisk**:  
-* **NELK 2023**:  
-    * **I**:  
-    * **II**:  
-    * **II:**:  
-* **DNK 2011**:  
-* **1977**:  
-* **1918**:  
+| |**I**|**II**|**III**|
+|--|--|--|--|
+|**Historisk**| | | |
+|**NELK 2023**|Mika 6,6–8; Fil 1,9–11; Matt 5,38–48| 2 Mos 19,1–6; Fil 4,10–14; Luk 10,38–42|Rut 1,7–19; 1 Kor 13,7–13; Joh 15,9–12|
+|**DNK 2011**|Mika 6,6–8; Fil 1,9–11; Matt 5,38–48|2 Mos 19,1–6; Fil 4,10–14; Luk 10,38–42|Rut 1,7–11.16–19a; 1 Kor 13,7–13; Joh 15,9–12|
+|**Norge 1978**| | | |
+|**Norge 1918**| | | |
 
 #### Graduale
 
