@@ -1,7 +1,7 @@
-### ${1:Navn på søndag}
+### 16. søndag i treenighetstiden
 
-Også kjent som ${2:Alternativt navn på søndag}  
-eller ${3:Søndagsnummer pluss en}. søndag etter Treenighetssøndag (Trinitatis)  
+Også kjent som 16. søndag etter pinse
+eller 15. søndag etter Treenighetssøndag (Trinitatis)  
 Farge: grønn  
 
 #### Introitus – Salme ved inngang
@@ -37,4 +37,4 @@ Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ån
 **A: Halleluja, halleluja!**  
 **L:** x (vers)  
 **A: x** (vers)  
-**A: Halleluja!**  
+**A: Halleluja!** 
