@@ -1,15 +1,15 @@
 ### 15. Søndag i treenighetstiden
 
-Også kjent som 15. søndag etter pinse\
-eller 14. søndag etter Treenighetssøndag (Trinitatis)\
-Farge: grønn
+Også kjent som 15. søndag etter pinse  
+eller 14. søndag etter Treenighetssøndag (Trinitatis)  
+Farge: grønn  
 
 #### Introitus – Salme ved inngang
 
-**L:** x (vers)
-**A: x** (vers)
-**L:** Ære være Faderen og Sønnen og Den Hellige Ånd,
-**A: som det var i begynnelsen, så nå og alltid, i all evighet. Amen.**
+**L:** x (vers)  
+**A: x** (vers)  
+**L:** Ære være Faderen og Sønnen og Den Hellige Ånd,  
+**A: som det var i begynnelsen, så nå og alltid, i all evighet. Amen.** 
 
 #### Kollektbønn
 
@@ -35,9 +35,9 @@ Herre Gud, himmelske Far! Du har berget oss som tror fra syndens urenhet og stor
 
 #### Graduale
 
-**L:** x (vers)
-**A: x (vers)**
-**A: Halleluja, halleluja!**
-**L:** x (vers)
-**A: x** (vers)
-**A: Halleluja!**
+**L:** x (vers)  
+**A: x (vers)**  
+**A: Halleluja, halleluja!**  
+**L:** x (vers)  
+**A: x** (vers)  
+**A: Halleluja!**  
