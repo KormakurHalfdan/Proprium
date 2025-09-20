@@ -4,15 +4,17 @@ Created by Sakarias Ingolfsson
 
 ## Kollektbønnene
 Den kortere bønnen er den tradisjonelle kollektbønnen for søndag, i lett modernisert format, etter Palladius’ alterbok.
-Den lengre bønnen ble tatt inn i samme alterbok, oversatt fra Veit Dietrichs postille. I forordet til alterboken skriver Palladius at man kan velge den ene eller en andre bønnen.
-I Baggers alterbok står kun Dietrichs bønner. Det er disse bønnene FBB har utgitt i oppdatert språkdrakt.
+Den lengre bønnen ble opprinnelig tatt inn i samme alterbok, oversatt fra Veit Dietrichs postille. I forordet til alterboken skriver Palladius at man kan velge den ene eller en andre bønnen. I Baggers alterbok står kun Dietrichs bønner. Ved liturgirevisjonen i 1976 ble disse bønnene vesentlig endret og redusert. FBB satte sammen en arbeidsgruppe, som leverte en egen reivsjon i 1989. Denne norske kollektbønnen kaller vi prekestolbønn.
 
-Et forslag er å bruke den tradisjonelle kollektbønnen på vanlig plass i liturgien, og Dietrichs bønn som prekestolbønn, alternativt til fri bønn.
+Et forslag er å bruke den tradisjonelle kollektbønnen på vanlig plass i liturgien, og den norske preksetolbønnen tidlig i preken, eller i slutten av den, eller alternativt fri bønn.
 
 ## Introitus og Graduale
 Introitus og Graduale er hentet fra en Islandsk messebok, med røtter til reformasjonen og forbi:
 
 ## Kilder
+
+Foreningen For Bibel og Bekjennelse, _Kollektbønner: Reviderte kollektbønner_, 1989. https://www.fbb.nu/artikkel/kollektboenner/ (Hentet 1. august 2025)
+
 Guðbrandur Þorláksson, _Graduale: Ein Almenneleg Messusöngs Bók_ Hólar. 1594; Endurprentun í Reykjavík: Flateyjarútgáfan, 1976.\
 _Handbók Íslensku Kirkjunnar_, Reykjavík: Kirkjuráð hinnar íslensku þjóðkirkju, 1981
 

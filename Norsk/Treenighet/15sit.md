@@ -15,7 +15,7 @@ Farge: grønn
 
 Allmektige, evige Gud, vi ber deg bevare din menighet ved din evige miskunn. Fordi menneskelig skrøpelighet forfaller uten deg, ber vi: Før oss vekk fra alt som kan skade oss på kropp og sjel, og led oss til evig salighet. Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
 
-## Prekestolbønn (Fra FBB.nu)
+## Prekestolbønn
 
 Herre Gud, himmelske Far! Du har berget oss som tror fra syndens urenhet og store plage ved ditt salige ord og den hellige dåp, og gir oss daglig din nådige hjelp i alt vi trenger. Vi ber deg: Vekk våre hjerter ved din Hellige Ånd, så vi aldri glemmer dine velgjerninger, men stadig lever i din frykt og i en fast tillit til din barmhjertighet, og alltid lover og priser deg av takknemlige hjerter, ved din elskede Sønn, Jesus Kristus, vår Herre, som med deg og Den Hellige Ånd lever og råder, en sann Gud fra evighet og til evighet.
 

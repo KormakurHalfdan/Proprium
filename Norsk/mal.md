@@ -15,7 +15,7 @@ Farge: grønn
 
 Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
 
-## Prekestolbønn (Fra FBB.nu)
+## Prekestolbønn
 
 Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
 
