@@ -2,7 +2,7 @@
 
 Også kjent som 15. søndag etter pinse  
 eller 14. søndag etter Treenighetssøndag (Trinitatis)  
-Farge: grønn  
+Farge: grønn
 
 ## Introitus – Salme ved inngang
 
