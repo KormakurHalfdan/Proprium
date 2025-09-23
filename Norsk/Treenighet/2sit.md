@@ -1,7 +1,7 @@
 # 2. søndag i treenighetstiden
 
 Også kjent som 2. søndag etter pinse  
-eller 1. søndag etter Treenighetssøndag (Trinitatis)  
+eller 1. søndag etter treenighetssøndag (Trinitatis)  
 Farge: grønn  
 
 ## Introitus – Salme ved inngang

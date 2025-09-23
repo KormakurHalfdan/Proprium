@@ -1,7 +1,7 @@
-# 17. søndag i treeighetstiden
+# 7. søndag i åpenbaringstiden
 
-Også kjent som 17. søndag etter pinse  
-eller 16. søndag etter Treenighetssøndag (Trinitatis)  
+Finnes ikke i liturgirevisjonen fra 2011
+Kun kjent som 6. søndag etter Kristi Åpenbaringsdag / Hellig tre kongers dag
 Farge: grønn  
 
 ## Introitus – Salme ved inngang

@@ -1,8 +1,6 @@
-# 17. søndag i treeighetstiden
+# Pinseaften
 
-Også kjent som 17. søndag etter pinse  
-eller 16. søndag etter Treenighetssøndag (Trinitatis)  
-Farge: grønn  
+Farge: hvit
 
 ## Introitus – Salme ved inngang
 
@@ -36,4 +34,4 @@ Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ån
 **A: Halleluja, halleluja!**  
 **L:** x (vers)  
 **A: x** (vers)  
-**A: Halleluja!**  
+**A: Halleluja!** 

@@ -1,7 +1,8 @@
-# 17. søndag i treeighetstiden
+# Septuagesima (såmannssøndag)
 
-Også kjent som 17. søndag etter pinse  
-eller 16. søndag etter Treenighetssøndag (Trinitatis)  
+Feires 9. søndag før påske, på den dagen som tradisjonelt kalles septuagesima, dvs. "symbolske" 70 dager før påske
+I gjennom liturgirevisjonene 1977 og 2011 ble denne søndagen til **såmannssøndag**.
+I de gamle tekstrekkene ble denne søndagen feiret som **vingårdssøndag** med Matt 20,1-16 som evangelitekst. Såmannsteksten ble lest søndagen etter, på sexagesima.
 Farge: grønn  
 
 ## Introitus – Salme ved inngang

@@ -1,7 +1,7 @@
-# 17. søndag i treeighetstiden
+# Quintagesima (Fastelavn)
 
-Også kjent som 17. søndag etter pinse  
-eller 16. søndag etter Treenighetssøndag (Trinitatis)  
+Feires 7. søndag før påske, på den dagen som tradisjonelt kalles quintagesima, dvs. "symbolske" 50 dager før påske
+Den kalles også for fastelavn.
 Farge: grønn  
 
 ## Introitus – Salme ved inngang

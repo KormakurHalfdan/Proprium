@@ -1,7 +1,8 @@
-# 17. søndag i treeighetstiden
+# Sexagesima (Kristi forklarelesdag)
 
-Også kjent som 17. søndag etter pinse  
-eller 16. søndag etter Treenighetssøndag (Trinitatis)  
+Feires 8. søndag før påske, på den dagen som tradisjonelt kalles sexagesima, dvs. "symbolske" 60 dager før påske
+I gjennom liturgirevisjonene 1977 og 2011 ble denne søndagen til **Kristi forklarelsesdag**.
+I de gamle tekstrekkene ble denne søndagen feiret som **såmannssøndag** med Matt 20,1-16 som evangelitekst. 
 Farge: grønn  
 
 ## Introitus – Salme ved inngang

@@ -1,7 +1,7 @@
-# 17. søndag i treeighetstiden
+# 27. søndag i treenighetstiden
 
-Også kjent som 17. søndag etter pinse  
-eller 16. søndag etter Treenighetssøndag (Trinitatis)  
+Også kjent som 27. søndag etter pinse  
+eller 26. søndag etter treenighetssøndag (Trinitatis)  
 Farge: grønn  
 
 ## Introitus – Salme ved inngang

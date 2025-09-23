@@ -1,4 +1,4 @@
-# 15. Søndag i treenighetstiden
+# 15. søndag i treenighetstiden
 
 Også kjent som 15. søndag etter pinse  
 eller 14. søndag etter Treenighetssøndag (Trinitatis)  
