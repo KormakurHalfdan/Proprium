@@ -2,7 +2,7 @@
 
 ### Todo
 
-- [ ] Legge inn maler for alle søndager i kirkeåret
+- [ ] Legge inn maler for alle søndager i kirkeåret ~1d @KormakurHalfdan
 - [ ] Legge inn stoff som allerede er klart fra både Island og Norge
 
 <!--
