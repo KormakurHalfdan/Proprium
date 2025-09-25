@@ -1,4 +1,4 @@
-# 15. eftir þrenningarhátíð 
+# 15. sunnudagur eftir þrenningarhátíð 
 
 Eða **16. sunnudagur eftir hvítasunnu**.
 Skrúði grænn

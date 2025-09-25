@@ -1,4 +1,4 @@
-# 12. sunnudagur eftir Þrenningarhátíð
+# 12. sunnudagur eftir þrenningarhátíð
 
 Eða **13. sunnudagur eftir hvítasunnu**.
 Skrúði grænn
