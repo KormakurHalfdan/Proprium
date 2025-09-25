@@ -1,7 +1,12 @@
 # 5. søndag i faste
 
-Også kjent som søndag etter midtfaste. Denne søndagen ble fjerne ved festdagsreduksjonen i 1771. Se forklaring til Maria Budskapsdag.
-Farge: grønn 
+Også kjent som **søndag etter midtfaste**, **pasjonssøndag** eller **Judicia**. Judicia betyr "Rettferdiggjør" fra dagens tradisjonelle Introitus, Sal 43,1 «Tilkjenn meg min rett, Gud! Før min sak mot et folk uten barmhjertighet, og frels meg fra falske og urettferdige menn!»
+
+Før innledet denne søndagen den såkalte pasjonstiden, men søndagen ble fjernet ved festdagsreduksjonen i 1771, og erstattet med feiring av Maria Budskapsdag. (Se [forklaring til Maria budskapsdag](./mb.md)) I dag er det få kirker som markerer pasjonstiden som egen kirkeårstid, men noen kirker vil f.eks. dekke til krusifiks og altertavler. 
+5. søndag i faste feires tradisjonelt 2. søndag før påske, tidligst 15. mars og senest 11. april.
+
+Litaniet brukes i fastetiden. Gloria utgår.  
+Farge: fiolett
 
 ## Introitus – Salme ved inngang
 

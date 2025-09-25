@@ -1,8 +1,8 @@
 # Septuagesima (såmannssøndag)
 
-Feires 9. søndag før påske, på den dagen som tradisjonelt kalles septuagesima, dvs. "symbolske" 70 dager før påske
-I gjennom liturgirevisjonene 1977 og 2011 ble denne søndagen til **såmannssøndag**.
-I de gamle tekstrekkene ble denne søndagen feiret som **vingårdssøndag** med Matt 20,1-16 som evangelitekst. Såmannsteksten ble lest søndagen etter, på sexagesima.
+Feires 9. søndag før påske, på den dagen som tradisjonelt kalles septuagesima, dvs. symbolske 70 dager før påske. (Det virkelige tallet er 63)
+Gjennom liturgirevisjonene 1977 og 2011 ble denne søndagen til **såmannssøndag**. I de gamle tekstrekkene ble denne søndagen feiret som **vingårdssøndag** med Matt 20,1-16 som evangelitekst. Såmannsteksten ble lest søndagen etter, på sexagesima.
+Septuagesima feires tidligst 18. januar og senest 22. februar. Søndagen innleder såkalt ni ukers faste eller før-faste, hvor man tradisjonelt begynner å forberede seg for fasten.
 Farge: grønn  
 
 ## Introitus – Salme ved inngang

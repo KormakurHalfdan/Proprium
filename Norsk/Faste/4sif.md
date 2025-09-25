@@ -1,9 +1,11 @@
 # 4. søndag i faste, midtfastesøndag
 
-Også kjent som midtfastesøndag. 
-Se forklaring til Maria budskapsdag.
+Også kjent som **midtfastesøndag** og **lætare søndag**. På sin tradisjonelle plass i fastetiden falt denne dagen mellom fastedag nummer 22 og 23, hvilket er tilnærmet midt i fasten. Lætare betyr "gled deg" og kommer fra den tradisjonelle introitus for dagen, Sal 121,1 «Jeg gleder meg over dem som sier til meg: Vi vil gå til Herrens hus.»
 
-Farge: grønn  
+Fjerde søndag i faste feires tradisjonelt 3. søndag før påske, tidligst 8. mars og senest 4. april. Etter liturgirevisjonen i 2011 ble Maria Budskapsdag en flyttbar søndag, og kan derfor skyve denne søndagen en uke nærmere påske, senest 11. april. Se [forklaring til Maria budskapsdag.](./mb.md)
+
+Litaniet brukes i fastetiden. Gloria utgår.  
+Farge: fiolett. Noen tradisjoner bruker lysere fiolett eller rosa denne søndagen.
 
 ## Introitus – Salme ved inngang
 

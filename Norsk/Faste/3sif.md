@@ -1,6 +1,12 @@
 # 3. søndag i faste
 
-Farge: grønn  
+Også kjent som **oculi** som betyr øyne. Navnet kommer fra Sal 25,15, som er tradisjonell introitus for dagen: «Mine øyne er alltid vendt til Herren».
+
+Feires tradisjonelt 5. søndag før påske, tidligst 22. februar og senest 28. mars. Etter liturgirevisjonen i 2011 ble Maria Budskapsdag en flyttbar	 søndag, og kan derfor skyve denne søndagen en uke nærmere påske, senest 4. april. Se [forklaring til Maria budskapsdag.](./mb.md)
+
+Litaniet brukes i fastetiden. Gloria utgår.  
+Farge: fiolett  
+
 
 ## Introitus – Salme ved inngang
 

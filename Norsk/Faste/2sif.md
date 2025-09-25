@@ -1,6 +1,11 @@
 # 2. søndag i faste
 
-Farge: grønn  
+Også kjent som **reminiscere** (ihukommelse). Dette navnet kommer fra søndagens tradisjonelle introitus, Sal 25,6-7 «Herre, kom din barmhjertighet i hu og din miskunnhets gjerninger, for de er fra evighet. 7 Kom ikke i hu min ungdoms synder og mine overtredelser! Kom meg i hu etter din miskunnhet, Herre, for din godhets skyld!»
+
+Feires tradisjonelt 6. søndag før påske, tidligst 15. februar og senest 21. mars. 
+
+Litaniet brukes i fastetiden. Gloria utgår.  
+Farge: fiolett  
 
 ## Introitus – Salme ved inngang
 

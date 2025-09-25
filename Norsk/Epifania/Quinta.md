@@ -1,7 +1,8 @@
 # Quintagesima (Fastelavn)
 
-Feires 7. søndag før påske, på den dagen som tradisjonelt kalles quintagesima, dvs. "symbolske" 50 dager før påske
-Den kalles også for fastelavn.
+Feires 7. søndag før påske, på den dagen som tradisjonelt kalles **quintagesima**, dvs. symbolske 50 dager før påske. Egentlig er det 49 dager, så navnet på denne søndagen ligger nærmest det å være korrekt. Den kalles også for **fastelavn** eller **karnival**. (Farvel til kjøtt)
+Quintagesima feires tidligst 1. februar og senest 7. mars. 
+
 Farge: grønn  
 
 ## Introitus – Salme ved inngang

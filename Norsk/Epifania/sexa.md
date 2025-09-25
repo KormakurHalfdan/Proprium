@@ -1,8 +1,9 @@
 # Sexagesima (Kristi forklarelesdag)
 
-Feires 8. søndag før påske, på den dagen som tradisjonelt kalles sexagesima, dvs. "symbolske" 60 dager før påske
-I gjennom liturgirevisjonene 1977 og 2011 ble denne søndagen til **Kristi forklarelsesdag**.
+Feires 8. søndag før påske, på den dagen som tradisjonelt kalles sexagesima, dvs. symbolske 60 dager før påske. (det virkelige tallet er 56)
+Gjennom liturgirevisjonene 1977 og 2011 ble denne søndagen til **Kristi forklarelsesdag**.
 I de gamle tekstrekkene ble denne søndagen feiret som **såmannssøndag** med Matt 20,1-16 som evangelitekst. 
+Sexagesima feires tidligst 25. januar og senest 29. februar.  
 Farge: grønn  
 
 ## Introitus – Salme ved inngang

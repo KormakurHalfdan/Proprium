@@ -1,6 +1,11 @@
 # 1. søndag i faste
 
-Farge: grønn  
+Også kjent som **quadragesima** (symbolske 40 dager før påske) eller **invocavit**, som betyr påkallelse. Dette navnet kommer dagens tradisjonelle Introitus i Sal 90,15-16. «Han skal påkalle meg, og jeg vil svare ham.»
+
+Feires 7. søndag før påske, tidligst 8. februar og senest 14. mars. 
+
+Litaniet brukes i fastetiden. Gloria utgår.  
+Farge: fiolett  
 
 ## Introitus – Salme ved inngang
 

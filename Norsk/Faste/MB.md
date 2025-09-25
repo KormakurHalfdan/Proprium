@@ -1,9 +1,10 @@
 # Maria Budskapsdag
 
-Opprinnelig ble Maria Buskapsdag feiret ni måneder før jul, vanligvis den 25. mars. Men allerede i Christian den femtis lov 1687 ble dagen flyttet til palmelørdag dersom den egentlig falt på palmesøndag eller senere.
-I festdagsreduksjonen 1771 ble det bestemt at dagen skulle utgå som offentlig fridag og i stedet legges til 5. søndag i faste. Slik står den i tekstboken 1918. Dermed forsvinner 5. søndag i faste.
-I liturgirevisjonen 1977 kommer 5. søndag i faste tilbake som et alternativ, da antakeligvis hvis man ønsket å feire Maria Budskapsdag som egen festdag. Det gis kun ett tekstvalg for denne dagen, som ikke er det tradisjonelle.
-I liturgirevisjonen 2011 skjer det enda en endring. Maria budskapsdag legges nå til den fastesøndagen som faller nærmest 23. mars. Den gamle femte søndag i faste faller ut igjen, og fastesøndagene reduseres til fire, pluss Maria budskapsdag. Fastesøndagene forskyves for å gi plass til Maria Budskapsdag. 
+Opprinnelig ble Maria Buskapsdag feiret ni måneder før jul, vanligvis den 25. mars. Men allerede i Christian den femtis lov 1687 ble dagen flyttet til palmelørdag dersom den egentlig falt på palmesøndag eller senere. I festdagsreduksjonen 1771 ble det bestemt at dagen skulle utgå som offentlig fridag og i stedet legges til 5. søndag i faste. Slik står den i tekstboken 1918. Dermed forsvinner 5. søndag i faste. I liturgirevisjonen 1977 kommer 5. søndag i faste tilbake som et alternativ, da antakeligvis hvis man ønsket å feire Maria Budskapsdag som egen festdag. Det gis kun ett tekstvalg for denne dagen, som ikke er det tradisjonelle.
+
+I liturgirevisjonen 2011 skjer det enda en endring. Maria budskapsdag legges nå til den fastesøndagen som faller nærmest 25. mars, altså en plass mellom 22. mars og 28. mars. Den gamle femte søndag i faste faller ut igjen, og fastesøndagene reduseres til fire, pluss Maria budskapsdag. Dette betyr at Maria budskapsdag kan skyves inn etter 2. eller 3. søndag i faste, og forskyve de resterende søndagenen med en uke, evt. etter 4. søndag i faste, som i tekstboken 1918.  
+
+Maria Budskapsdag er en festdag, hvor det brukes vanlig kirkebønn og gloria.
 Farge: hvit  
 
 ## Introitus – Salme ved inngang
