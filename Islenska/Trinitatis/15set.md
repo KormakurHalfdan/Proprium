@@ -5,13 +5,13 @@ Skrúði grænn
 
 ## Introitus – Inngöngusálmur
 
-**L:** Hneig eyra þitt, Drottinn, og bænheyr mig, (Sálm 86:1a)
-**A: hjálpa þú, Guð minn, þjóni þínum, er treystir þér.**(Sálm 86:2b)
-**L:** Ver mér náðugur, Drottinn, því þig ákalla ég allan daginn.**
-**A: Gleð þú sál þjóns þíns, því að til þín, Drottinn, hef ég sál mína.** (Sálm 86:3-4)
+**L:** Hneig eyra þitt, Drottinn, og bænheyr mig, (Sálm 86:1a)  
+**A: hjálpa þú, Guð minn, þjóni þínum, er treystir þér.**(Sálm 86:2b)  
+**L:** Ver mér náðugur, Drottinn, því þig ákalla ég allan daginn.**  
+**A: Gleð þú sál þjóns þíns, því að til þín, Drottinn, hef ég sál mína.** (Sálm 86:3-4)  
 **L:** Dýrð sé Guði, Föður, Syni og Heilögum Anda  
 **A: svo sem var í upphafi, er enn og verða mun um aldir alda. Amen.**  
-**L:** Hneig eyra þitt, Drottinn, og bænheyr mig, (Sálm 86:1a)
+**L:** Hneig eyra þitt, Drottinn, og bænheyr mig, (Sálm 86:1a)  
 **A: hjálpa þú, Guð minn, þjóni þínum, er treystir þér.**(Sálm 86:2b)
 
 ## Kollekta
@@ -28,9 +28,9 @@ Skrúði grænn
 
 ## Graduale - Pallasöngur
 
-**L:** Gott er að lofa Drottin og lofsyngja nafni þínu, þú Hinn hæsti,
-**A: að kunngjöra miskunn þína að morgni og trúfesti þína um nætur** (Sálm 98:2-3)
-**A: Hallelúja, hallelúja!**  
-**L:** Drottinn, Guð minn, þú ert harla mikill. 
-**A: Þú ert klæddur hátign og vegsemd.** (Sálm 104:1b)
+**L:** Gott er að lofa Drottin og lofsyngja nafni þínu, þú Hinn hæsti,  
+**A: að kunngjöra miskunn þína að morgni og trúfesti þína um nætur** (Sálm 98:2-3)  
+**A: Hallelúja, hallelúja!**    
+**L:** Drottinn, Guð minn, þú ert harla mikill.   
+**A: Þú ert klæddur hátign og vegsemd.** (Sálm 104:1b)  
 **A: Hallelúja!**  

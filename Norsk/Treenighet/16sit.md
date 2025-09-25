@@ -6,13 +6,13 @@ Farge: grønn
 
 ## Introitus – Salme ved inngang
 
-**L:** Vend øret til, Herre, og svar meg (Sal 86,1a)
-**A: Frels din tjener, du min Gud, han som setter sin lit til deg!** (Sal 86,2b)
-**L:** Vær meg nådig, Herre, for til deg roper jeg hele dagen.
-**A: Gled din tjeners sjel, for til deg, Herre, løfter jeg min sjel.** (Sal 86,3-4)
+**L:** Vend øret til, Herre, og svar meg (Sal 86,1a)  
+**A: Frels din tjener, du min Gud, han som setter sin lit til deg!** (Sal 86,2b)  
+**L:** Vær meg nådig, Herre, for til deg roper jeg hele dagen.  
+**A: Gled din tjeners sjel, for til deg, Herre, løfter jeg min sjel.** (Sal 86,3-4)  
 **L:** Ære være Faderen og Sønnen og Den Hellige Ånd,  
 **A: som det var i begynnelsen, så nå og alltid, i all evighet. Amen.**  
-**L:** Vend øret til, Herre, og svar meg (Sal 86,1a)
+**L:** Vend øret til, Herre, og svar meg (Sal 86,1a)  
 **A: Frels din tjener, du min Gud, han som setter sin lit til deg!** (Sal 86,2b)
 
 ## Kollektbønn
@@ -35,8 +35,8 @@ Allmektige Gud, himmelske Far! Vi takker deg for alle dine velgjerninger imot os
 
 ## Graduale
 
-**L:** Det er godt å prise Herren og lovsynge ditt navn, du Høyeste,
-**A: å kunngjøre din miskunnhet om morgenen og din trofasthet om nettene,** (Sal 92:2-3)
+**L:** Det er godt å prise Herren og lovsynge ditt navn, du Høyeste,  
+**A: å kunngjøre din miskunnhet om morgenen og din trofasthet om nettene,** (Sal 92:2-3)  
 **A: Halleluja, halleluja!**  
-**L:** Overmåte stor er du, Herre min Gud,
+**L:** Overmåte stor er du, Herre min Gud,  
 **A: høyhet og herlighet har du ikledd deg.** (Sal 104:1b)
