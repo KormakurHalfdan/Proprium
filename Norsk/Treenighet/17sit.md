@@ -24,8 +24,8 @@ Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ån
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**|Job 19,21–27<br>2 Tim 1,7–12<br>Joh 11,17– 46 (Joh 11,17–29 og/eller 30–46) | 1 Kong 17,17–24<br>1 Kor 15,35–45<br>Luk 7,11–17 | Esek 37,1–14 (Esek 37,1–5.10–14)<br>Fil 1,20–26<br>Mark 5,35–43 |
+|**DNK 2011**| Job 19,21–27<br>2 Tim 1,7–12<br>Joh 11,17– 46 (Joh 11,17–29 og/eller 30–46) | 1 Kong 17,17–24<br>1 Kor 15,35–45<br>Luk 7,11–17 | Esek 37,1–14 (Esek 37,1–5.10–14)<br>Fil 1,20–26<br>Mark 5,35–43  |
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 
