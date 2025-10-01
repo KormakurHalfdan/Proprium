@@ -1,18 +1,12 @@
-# 12. sunnudagur eftir þrenningarhátíð
+# 13. sunnudagur eftir þrenningarhátíð
 
-Eða **13. sunnudagur eftir hvítasunnu**.
+Eða **14. sunnudagur eftir hvítasunnu**.  
 Skrúði grænn
 
 ## Introitus – Inngöngusálmur
 
-**L:** Guð, lát þér þóknast að frelsa mig,
-**A: Drottinn, skunda mér til hjálpar.** (Sálm 70:2)  
-**L:** Lát þá verða til skammar og hljóta kinnroða, er sitja um líf mitt,
-**A: lát þá hverfa aftur með skömm, er óska mér ógæfu** (Sálm 70:3)  
 **L:** Dýrð sé Guði, Föður, Syni og Heilögum Anda  
 **A: svo sem var í upphafi, er enn og verða mun um aldir alda. Amen.**  
-**L:** Guð, lát þér þóknast að frelsa mig,
-**A: Drottinn, skunda mér til hjálpar.** (Sálm 70:2)  
 
 ## Kollekta
 
@@ -22,14 +16,11 @@ Almáttugi, miskunnsami Guð, það er fyrir gjafir þínar að vér megnum veit
 
 | |**A**|**B**|**C**|
 |:---|:---:|:---:|:---:|
-|**Forn**|2 Kor 3:4–9<br>Mark 7:31–37| <br> <br> | <br> <br> |
-|**1981**|1 Sam 3:1-10<br>2 Kor 3:4-9<br>Mark 7:37-37|Sálm 40:2-6<br>Jak 3:8-18<br>Matt 12:31-37|Sálm 86:9-13:15<br>Kól 4:2-6<br>Matt 5:33-37|
-|**Endurskoðuð**|Jes 29:17-24<br>2 Kor 3:4-9<br>Mark 7:31-37|Sálm 40:2-6<br>Jak 3:8-12<br>Matt 12:31-37|Sálm 86:9-13:15<br>Post 9:1-20<br>Mark 8:22-27|
+|**Forn**| Gal 3:15-22<br>Lúk 10:23-37| <br><br> | <br><br> |
+|**1981**|Sálm 25:2-14<br>Gal 3:15-22<br>Lúk 10:23-37 |Jes 58:6-12<br>1 Kor 13:1-7<br>Matt 20:20-28 |5 Mós 10:17-21a<br>1 Kor 13:8-13<br>Jóh 13:34-35 |
+|**Endurskoðuð**|1 Mós 4:3-16a<br>1 Jóh 4:7-11<br>Lúk 10:23-37 |Jes 58:6-12<br>1 Kor 13:1-7<br>Matt 5:43-48 |2 Kron 28:8-15<br>1 Kor 13.8-13<br>Jóh 9:24-41|
 
 ## Graduale - Pallasöngur
 
-**L:** Ég vil vegsama Drottin alla tíma, ætíð sé lof hans mér í munni.
-**A: Sál mín hrósar sér af Drottni, hinir hógværu skulu heyra það og fagna.** (Sálm 34:2-3)
-**A: Hallelúja, hallelúja!**
-**A: Drottinn, þú hefir verið oss athvarf frá kyni til kyns** (Sálm 90:1)
-**A: Hallelúja!**
+**A: Hallelúja, hallelúja!**  
+**A: Hallelúja!**  
