@@ -1,6 +1,6 @@
-# ${1:Sunnudagur}. sunnudagur eftir þrenningarhátíð 
+# 1. sunnudagur eftir þrenningarhátíð 
 
-Eða **${2:Sunnudagur}. sunnudagur eftir hvítasunnu**.
+Eða **2. sunnudagur eftir hvítasunnu**.
 Skrúði grænn
 
 ## Introitus – Inngöngusálmur
