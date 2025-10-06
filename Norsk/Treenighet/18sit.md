@@ -24,8 +24,8 @@ Herre Gud, himmelske Far! Vi takker deg for hviledagen som du har satt til samli
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**|Jes 53,1–5<br>Hebr 2,10–18<br>Matt 8,14–17|1 Kong 8,41–43<br>Rom 15,25–33<br>Matt 8,5–13|Salme 38,10–16<br>1 Joh 4,11–17<br>Mark 1,40–45|
+|**DNK 2011**||Jes 53,1–5<br>Hebr 2,10–18<br>Matt 8,14–17|1 Kong 8,41–43<br>Rom 15,25–33<br>Matt 8,5–13|Salme 38,10–16<br>1 Joh 4,11–16<br>Mark 1,40–45|
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 
