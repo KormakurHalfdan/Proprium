@@ -1,6 +1,6 @@
-# 1. sunnudagur eftir þrenningarhátíð 
+# Snið 
 
-Eða **2. sunnudagur eftir hvítasunnu**.
+Eða **?**.
 Skrúði grænn
 
 ## Introitus – Inngöngusálmur

@@ -1,13 +1,15 @@
 # 18. søndag i treenighetstiden
 
 Også kjent som 18. søndag etter pinse  
-eller 17. søndag etter Treenighetssøndag (Trinitatis)  
+eller **17. søndag etter Treenighetssøndag (Trinitatis)**  
 Farge: grønn  
 
 ## Introitus – Salme ved inngang
 
-**L:** x (vers)  
-**A: x** (vers)  
+**L:** Du er rettferdig, Herre, og rettvise er dine dommer (Sal 119:137)
+**A: Gjør med din tjener etter din miskunn, og lær meg dine forskrifter!** (Sal 119:124)
+**L:** Salige er de som går de oppriktiges vei,
+**A: som vandrer i Herrens lov.** (Sal 119:1)
 **L:** Ære være Faderen og Sønnen og Den Hellige Ånd,  
 **A: som det var i begynnelsen, så nå og alltid, i all evighet. Amen.**  
 
