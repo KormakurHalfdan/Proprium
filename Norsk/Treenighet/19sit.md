@@ -6,8 +6,8 @@ Farge: grønn
 
 ## Introitus – Salme ved inngang
 
-**L:** x (vers)  
-**A: x** (vers)  
+**L:** La dem som venter på deg, få sin lønn, så dine profeter viser seg som troverdige. (Sir 36,18 NO2011)  
+**A: Jeg gleder meg over dem som sier til meg: Vi vil gå til Herrens hus** (Sal 122:1)  
 **L:** Ære være Faderen og Sønnen og Den Hellige Ånd,  
 **A: som det var i begynnelsen, så nå og alltid, i all evighet. Amen.**  
 
@@ -31,9 +31,9 @@ Hellige Gud, himmelske Far! Du har åpenbart din hellige lov og avslørt at vi e
 
 ## Graduale
 
-**L:** x (vers)  
-**A: x (vers)**  
+**L:** Jeg gleder meg over dem som sier til meg: Vi vil gå til Herrens hus (Sal 122:1)  
+**A: Må det råde fred innenfor dine murer, ro i dine saler! (Sal 122:7)**  
 **A: Halleluja, halleluja!**  
-**L:** x (vers)  
-**A: x** (vers)  
+**L:** Lov Herren, alle hedninger!  
+**A: Pris ham, alle folk! ** (Sal 117,1)  
 **A: Halleluja!**  

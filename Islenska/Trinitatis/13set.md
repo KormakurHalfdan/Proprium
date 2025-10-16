@@ -12,6 +12,10 @@ Skrúði grænn
 
 Almáttugi, miskunnsami Guð, það er fyrir gjafir þínar að vér megnum veita þér verðuga og lofsamlega þónustu. Vér biðjum: Veit að vér meigum hraða oss að þínum fyrirheitum, án þess að hrasa. Fyrir Son þinn, Jesú Krist, Drottinn vorn, sem með þér og Heilögum Anda lifir og ríkir, einn sannur Guð um aldir alda.
 
+#### Kollekta 1981
+
+Almáttugi, eilífi Guð: Auk oss trú, von og kærleika. Lát oss elska það, sem þú býður, að vér öðlumst það, sem þú hefur heitið oss. Fyrir son þinn Jesú Krist, Drottin vorn, sem með þér lifir og ríkir í einingu heilags anda, einn sannur Guð um aldir alda.
+
 ## Ritningarlestrar og guðspjall
 
 | |**A**|**B**|**C**|

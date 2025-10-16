@@ -1,13 +1,15 @@
 # 20. søndag i treenighetstiden
 
 Også kjent som 20. søndag etter pinse  
-eller 19. søndag etter treenighetssøndag (Trinitatis)  
+eller **19. søndag etter treenighetssøndag** (Trinitatis)  
 Farge: grønn  
 
 ## Introitus – Salme ved inngang
 
-**L:** x (vers)  
-**A: x** (vers)  
+**L:** Min røst løfter seg til Gud, og jeg vil rope. Min røst løfter seg til Gud, og han vil vende øret til meg. 
+**A: Den dag jeg er i nød, søker jeg Herren** (Sal 77.2-3)  
+**L:** Lytt, mitt folk, til min lære! 
+**A: Vend øret til min munns ord!** (Sal 78,1)
 **L:** Ære være Faderen og Sønnen og Den Hellige Ånd,  
 **A: som det var i begynnelsen, så nå og alltid, i all evighet. Amen.**  
 
@@ -24,16 +26,16 @@ Allmektige, barmhjertige Gud, du som ved din Sønn Jesus Kristus lot lamme gå o
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**|1 Sam 18,1–4<br>Hebr 13,1–6<br>Joh 11,1–6|1 Mos 2,18–25|Ef 5,21–33<br>Matt 19,3-9|Rut 2,8–11<br>Ef 6,1–4<br>Matt 18,1–11|
+|**DNK 2011**|1 Sam 18,1–4<br>Hebr 13,1–3<br>Joh 11,1–5|1 Mos 2,18–25|Ef 5,31–33<br>Mark 10,2–9|Rut 2,8–11<br>Ef 6,1–4<br>Matt 18,1–11|
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 
 ## Graduale
 
-**L:** x (vers)  
-**A: x (vers)**  
+**L:** La min bønn gjelde som røkoffer for ditt åsyn!  
+**A: La mine løftede hender gjelde som et aften-matoffer!** (Sal 141,2)    
 **A: Halleluja, halleluja!**  
-**L:** x (vers)  
-**A: x** (vers)  
+**L:** Herrens høyre hånd opphøyer,  
+**A: Herrens høyre hånd gjør storverk.** (Sal 118,16)    
 **A: Halleluja!**  

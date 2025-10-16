@@ -18,6 +18,10 @@ Skrúði grænn
 
 Almáttugi, eilífi Guð! Vér biðjum: lát náð þína ætíð fyrir oss fara og eftir oss fylgja, og uppvek hjörtu okkar til að girnast þessa náð, að vér séum ætið reiðubúin til allra góðra verka. Fyrir Son þinn, Jesú Krist, Drottinn vorn, sem með þér og Heilögum Anda lifir og ríkir, einn sannur Guð um aldir alda.
 
+#### Kollekta 1981
+
+Drottinn, vér biðjum þig: Lát náð þín ávallt fyrir oss fara og eftir fylgja og vekja oss vilja og mátt til allra góða verka. Fyrir son þinn Jesú Krist, Drottin vorn, sem með þér lifir og ríkir í einingu heilags anda, einn sannur Guð um aldir alda.
+
 ## Ritningarlestrar og guðspjall
 
 | |**A**|**B**|**C**|

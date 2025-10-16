@@ -18,6 +18,11 @@ Skrúði grænn
 
 Ó Drottinn Guð, þú sem aldrei bregst í ráðum fyrirhyggju þinnar, vér biðjum þig auðmjúklega: Tak frá oss allt það, sem oss má að meini verða og veit oss alla þá hluti, sem oss eru gagnlegir til lífs og sálar. Fyrir Drottinn vorn Jesú Krist, sem með þér og Heilögum Anda lifir og ríkir, sannur Guð um aldir alda.
 
+#### Kollekta 1981
+
+Eilífi Guð, þú sem aldrei bregst í ráðum forsjónar þinnar, vér biðjum þig: Tak frá oss allt, sem oss má að meini verða og gef oss það, sem farsælir oss til lífs og sálar. Fyrir son þinn Jesú Krist, Drottin vorn, sem með þér lifir og ríkir í einingu heilags anda, einn sannur Guð um aldir
+alda.
+
 ## Ritningarlestrar og guðspjall
 
 | |**A**|**B**|**C**|

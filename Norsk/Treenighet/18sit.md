@@ -33,9 +33,9 @@ Herre Gud, himmelske Far! Vi takker deg for hviledagen som du har satt til samli
 
 ## Graduale
 
-**L:** x (vers)  
-**A: x (vers)**  
+**L:** Salig er det folket som har Herren til sin Gud, det folket han har utvalgt til sin eiendom! (Sal 33,12)  
+**A: Himlene er skapt ved Herrens ord, og all deres hær ved hans munns åndepust (Sal 33,6)**  
 **A: Halleluja, halleluja!**  
-**L:** x (vers)  
-**A: x** (vers)  
+**L:** Ikke oss, Herre, ikke oss, men ditt navn gi du ære  
+**A: for din miskunnhets og din trofasthets skyld!** (Sal 115.1)  
 **A: Halleluja!** 

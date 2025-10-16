@@ -19,6 +19,10 @@ Skrúði grænn
 Drottinn Guð, himneski Faðir, við biðjum þig: Veit oss viljugan anda og náð, til að hugsa og gjöra þá hluti, sem réttir eru, svo að vér, sem ekki getum án þín verið, megum lifa samkvæmt þínum vilja.
 Fyrir Drottinn vorn Jesú Krist, sem með þér og Heilögum Anda lifir og ríkir, sannur Guð um aldir alda.
 
+#### Kollekta 1981
+
+Drottinn Guð, vér biðjum þig: Gef oss af mildi þinni þann anda, að vér hugsum ávallt það sem er rétt og breytum eftir því, svo að vér, sem getum ekki án þín verið, megum lifa samkvæmt þínum vilja. Fyrir son þinn Jesú Krist, Drottin vorn, sem með þér lifir og ríkir í einingu heilags anda, einn sannur Guð um aldir alda.
+
 ## Ritningarlestrar og guðspjall
 
 | |**A**|**B**|**C**|

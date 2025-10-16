@@ -17,6 +17,10 @@ Skrúði grænn
 Almáttugi, eilífi Guð: Lát eyru miskunnar þinnar ætið vera opin við auðmjúkum bænum vorum. Og þannig að oss veitist það sem vér girnumst, gef oss þá þína náð til að girnast það eitt, sem þér þóknast.
 Fyrir Drottinn vorn Jesú Krist, sem með þér og Heilögum Anda lifir og ríkir, sannur Guð um aldir alda.
 
+#### Kollekta 1981
+
+Almáttugi Guð: Heyr í mildi bænir vorar, sem leitum ásjár þinnar og gef, að vér óskum þess eins, sem þér er þóknanlegt, svo að þú fáir veitt oss það, sem vér beiðumst. Fyrir son þinn Jesú Krist, Drottin vorn, sem með þér lifir og ríkir í einingu heilags anda, einn sannur Guð um aldir alda.
+
 ## Ritningarlestrar og guðspjall
 
 | |**A**|**B**|**C**|

@@ -18,6 +18,10 @@ Skrúði grænn
 
 Ó Drottinn, lát eilífa miskunn þína hreinsa og vernda kirkju þína. Án þín getur hún hvorki staðið stöðug eða hólpin orðin, og því biðjum vér: Lát hana ætið stjórnast fyrir gjafir þínar, og fyrir Son þinn, Jesú Krist, Drottinn vorn, sem með þér og Heilögum Anda lifir og ríkir, einn sannur Guð um aldir alda.
 
+#### Kollekta 1981
+
+Drottinn Guð: Lát eilífa miskunn þína hreinsa og vernda kirkju þína. Stjórna henni í mildi þinni, því að án þín má hún eigi stöðug standa né hólpin verða. Fyrir son þinn Jesú Krist, Drottin vorn, sem með þér lifir og ríkir í einingu heilags anda, einn sannur Guð um aldir alda.
+
 ## Ritningarlestrar og guðspjall
 
 | |**A**|**B**|**C**|

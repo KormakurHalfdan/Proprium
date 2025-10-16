@@ -18,6 +18,14 @@ Skrúði grænn
 
 Ó Drottinn, lát eilífa miskunn þína hreinsa og vernda kirkju þína. Án þín getur hún hvorki staðið stöðug eða hólpin orðin, og því biðjum vér: Lát hana ætið stjórnast fyrir gjafir þínar, og fyrir Son þinn, Jesú Krist, Drottinn vorn, sem með þér og Heilögum Anda lifir og ríkir, einn sannur Guð um aldir alda.
 
+#### Kollekta 1981
+
+Almáttugi, eilífi Guð, þú sem af gnægð föðurelsku þinnar veitir þeim, sem til þín leita meira en þeir verðskulda eða biðja um: Miskunna oss, að þú megir afmá það allt, sem þjakar samviskuna og veita oss þá blessun, sem vér kunnum ekki um að biðja. Fyrir son þinn Jesú Krist, Drottin vorn, sem með þér lifir og ríkir í einingu heilags anda, einn sannur Guð um aldir alda.
+
+**Eða:**
+
+Algóði, eilífi Guð. Þú ert fúsari að heyra en vér að biðja og veitir oss langt yfir allt það fram, sem vér óskum og verðskuldum: Lát gnægð gæsku þinnar og miskunnar koma yfir oss, svo að þú megir afmá það allt, sem hrellir samviskuna og að auki veita þá blessun, sem vér kunnum ekki um að biðja. Fyrir son þinn Jesú Krist, Drottin vorn, sem með þér lifir og ríkir í einingu heilags anda, einn sannur Guð um aldir alda.
+
 ## Ritningarlestrar og guðspjall
 
 | |**A**|**B**|**C**|

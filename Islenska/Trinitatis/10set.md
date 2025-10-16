@@ -18,6 +18,10 @@ Hann endurleysir sál mína og gefur mér frið. (Sálm 55:17a, 18b, 19a)
 Almáttugi, eilífi Guð, þú sem auðsýnir mátt þinn þitt með því að þyrma og miskunna oss. Vér biðjum þig: Auk og margfalda við oss miskunn þína, svo að vér sem treystum á fyrirheit þín, meigum hlutdeild fá i himneskri blessun þinni.
 Fyrir Son þinn, Jesú Krist, Drottinn vorn, sem með þér og Heilögum Anda lifir og ríkir, einn sannur Guð um aldir alda.
 
+#### Kollekta 1981
+
+Guð, eilífi faðir, þú sem sýnir almætti þitt helst og fremst með því að þyrma og miskunna: Auðga oss af þinni náð, svo að vér, sem höfum fyrirheit þitt fyrir augum, megum hlutdeild fá í himneskri blessun þinni. Fyrir son þinn Jesú Krist, Drottin vorn, sem með þér lifir og ríkir í einingu heilags anda, einn sannur Guð um aldir alda.
+
 ## Ritningarlestrar og guðspjall
 
 | |**A**|**B**|**C**|

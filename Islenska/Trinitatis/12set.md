@@ -18,6 +18,14 @@ Skrúði grænn
 
 Almáttugi, miskunnsami Guð, það er fyrir gjafir þínar að vér megnum veita þér verðuga og lofsamlega þónustu. Vér biðjum: Veit að vér meigum hraða oss að þínum fyrirheitum, án þess að hrasa. Fyrir Son þinn, Jesú Krist, Drottinn vorn, sem með þér og Heilögum Anda lifir og ríkir, einn sannur Guð um aldir alda.
 
+#### Kollekta 1981
+
+Almáttugi, miskunnsami Guð. Það er gjöf náðar þinnar, að þeir, sem á þig trúa, veiti þér verðuga og lofsamlega þjónustu, vér biðjum þig: Veit að vér megum höndla fyrirheit þín án þess að hrasa. Fyrir son þinn Jesú Krist, Drottin vorn, sem með þér lifir og ríkir í einingu heilags anda, einn sannur Guð um aldir alda.
+
+**Eða:**
+
+Almáttugi, miskunnsami Guð. Það er gjöf náðar þinnar, að þeir, sem eru þínir í trúnni, veiti þér verðuga og lofsamlega þjónustu, vér biðjum þig: Styrk oss í voninni og trúnni á fyrirheit náðar þinnar og lát oss án þess að bregðast keppa að marki í kærleika. Fyrir son þinn Jesú Krist, Drottin vorn, sem með þér lifir og ríkir í einingu heilags anda, einn sannur Guð um aldir alda.
+
 ## Ritningarlestrar og guðspjall
 
 | |**A**|**B**|**C**|
