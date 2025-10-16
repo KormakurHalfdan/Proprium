@@ -55,26 +55,26 @@ Dette innebærer at troskapen mot overleveringen ikke har vært statisk. Det har
 
 Det nye kirkeår med dets tekstrekker krevet at der ble skapt noen nye bønner, da tilsvarende ikke fantes i VD's gamle rekke. Disse nye bønner finner vi på følgende dager:
 
-* [4.søn. i advent;](Advent/4sia.md)
-* [Julaften;](Jul/Julaft.md)
-* [alternativ 2 til 1. juledag;](Jul/Julaft.md)
-* [Nyttårsnatt;](Jul/Nyaft.md)
-* [2.søn. etter Kristi åpenbaringsdag;](Epifania/3siå.md)
-* [Søn. før faste;](Epifania/Fastel.md)
-* [5.søn i faste;](Faste/5sif.md)
-* [6.søn.etter pinse;](Treenighet/6sit.md)
-* [27.søn. etter pinse;](Treenighet/27sit.md)
-* [Siste søn. i kirkeåret](Treenighet/KrKo.md)
+* [4.søn. i advent;](Norsk/Advent/4sia.md)
+* [Julaften;](Norsk/Jul/Julaft.md)
+* [alternativ 2 til 1. juledag;](Norsk/Jul/Julaft.md)
+* [Nyttårsnatt;](Norsk/Jul/Nyaft.md)
+* [2.søn. etter Kristi åpenbaringsdag;](Norsk/Epifania/3siå.md)
+* [Søn. før faste;](Norsk/Epifania/Fastel.md)
+* [5.søn i faste;](Norsk/Faste/5sif.md)
+* [6.søn.etter pinse;](Norsk/Treenighet/6sit.md)
+* [27.søn. etter pinse;](Norsk/Treenighet/27sit.md)
+* [Siste søn. i kirkeåret](Norsk/Treenighet/KrKo.md)
 * og 1.mai.
 
-I disse bønner har vi tilstrebet å holde samme språklige formale stil som VD. Forøvrig har dagens tekst og tema vært avgjørende for utformingen av disse bønner. Eksempelvis hadde den gamle VD for [Aposteldagen](Treenighet/6sit.md) det daglige kallsarbeid som tema. Her ble det derfor nødvendig med en nyformulering der apostolatet står som det sentrale tema.
+I disse bønner har vi tilstrebet å holde samme språklige formale stil som VD. Forøvrig har dagens tekst og tema vært avgjørende for utformingen av disse bønner. Eksempelvis hadde den gamle VD for [Aposteldagen](Norsk/Treenighet/6sit.md) det daglige kallsarbeid som tema. Her ble det derfor nødvendig med en nyformulering der apostolatet står som det sentrale tema.
 
 #### `[5. Rokeringer]`
 
 I tillegg har det vært nødvendig å foreta noen rokeringer
 
-* På [2. søn. etter Kristi åpenbaringsdag](Epifania/3siå.md) er ekteskapet ikk elenger tema, selv om evangelieteksten er den samme. I stedet er [21. søn etter pinse](Treenighet/21sit.md) blitt "ekteskapets søndag", derfor er bønnen fra åpenbaringstiden flyttet over dit, samtidig som det er skapt en ny bønn for [2. søn. e. Kr. åp](Epifania/3siå.md)
-* Tilsvarende er "dåpssøndag", som tidligere var [Fastelavenssøndag](Epifania/Fastel.md), flyttet over til [1. søn. etter Kristi åpenbaring](Epifania/2siå.md), og denne dagens VD har vi latt følge med teksten.
+* På [2. søn. etter Kristi åpenbaringsdag](Norsk/Epifania/3siå.md) er ekteskapet ikk elenger tema, selv om evangelieteksten er den samme. I stedet er [21. søn etter pinse](Norsk/Treenighet/21sit.md) blitt "ekteskapets søndag", derfor er bønnen fra åpenbaringstiden flyttet over dit, samtidig som det er skapt en ny bønn for [2. søn. e. Kr. åp](Norsk/Epifania/3siå.md)
+* Tilsvarende er "dåpssøndag", som tidligere var [Fastelavenssøndag](Norsk/Epifania/Fastel.md), flyttet over til [1. søn. etter Kristi åpenbaring](Norsk/Epifania/2siå.md), og denne dagens VD har vi latt følge med teksten.
 
 ## `[Avslutning]`
 
