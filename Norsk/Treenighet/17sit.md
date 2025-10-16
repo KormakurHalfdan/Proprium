@@ -19,7 +19,7 @@ Farge: grønn
 
 Herre vi ber: La din nåde alltid både gå foran oss og følge etter oss, og gjøre oss flittige til gode gjernigner. Ved vår Herre Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
 
-## Prekestolbønn
+## Kollektbønn 2 (Dietrich/FBB)
 
 Herre, du levende Gud og Far! Vi takker deg fordi du har latt din enbårne Sønn bli menneske, for at han med sin død skulle betale for våre overtredelser, og med sitt liv fri oss fra den evige død. Vi ber deg: Hold oss oppe i et levende håp, så vi ikke faller i tvil, men grunnfestes i den tro at likesom vår Herre Jesus Kristus med ett ord skapte liv av døde, slik vil han også vekke oss opp på den ytterste dag og gjøre oss evig salige, ved denne din elskede Sønn, Jesus Kristus, vår Herre, som med deg og Den Hellige Ånd lever og råder, en sann Gud fra evighet og til evighet.
 

@@ -17,9 +17,15 @@ Farge: grønn
 
 Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
 
-## Prekestolbønn
+## Kollektbønn 2 (Dietrich/FBB)
 
-Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
+#### Kristi forklarelsesdag (Etter revisjonene 1977 og 2011)
+
+Evige, barmhjertige Gud, himmelske Far! Vi takker deg fordi du har latt ditt evangeliums lys skinne her hos oss, og har åpenbart din Sønns herlighet. Vi ber deg: Vekk oss opp ved dette lys, og styrk oss med din nåde, så vi i en kristen livsferd kan vandre i tro og gode gjerninger, inntil vi når det fullkomne lys og blir evig salige, ved din elskede Sønn, Jesus Kristus, vår Herre, som med deg og Den Hellige Ånd lever og råder, en sann Gud fra evighet og til evighet.
+
+#### Såmannssøndag (Tradisjonelt på Sexagesima)
+
+Herre Gud, himmelske Far! Vi takker deg fordi du ved din Sønn, Jesus Kristus, har sådd ditt hellige ord her hos oss. Vi ber deg at du ved din Hellige Ånd vil rense og danne våre hjerter, så vi flittig bærer ditt ord, gjemmer det i gode hjerter, og bærer frukt av det i tålmodighet. Løs oss fra syndens makt, og la oss seire over den i troen, og gi oss i alle forfølgelser å trøste oss til din nådige hjelp, ved din elskede Sønn, Jesus Kristus, vår Herre, som med deg og Den Hellige Ånd lever og råder, en sann Gud fra evighet og til evighet
 
 ## Tekstrekker
 

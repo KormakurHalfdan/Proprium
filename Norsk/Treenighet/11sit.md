@@ -15,9 +15,9 @@ Farge: grønn
 
 Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
 
-## Prekestolbønn
+## Kollektbønn 2 (Dietrich/FBB)
 
-Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
+Allmektige, evige Gud! Vi lover og priser deg fordi du ved din Hellige Ånd har åpenbart oss ordet om din kjære Sønn, Jesus Kristus. Vi ber deg: Vekk våre hjerter, så vi med alvor tar ordet til oss, og ikke hører det i vantro og blir uten frukt slik ditt folk Israel gjorde. Gi oss istedet å leve i din frykt, daglig vokse i troen på din barmhjertighet, og så til sist bli evig salige, ved din elskede Sønn, Jesus Kristus, vår Herre, som med deg og Den Hellige Ånd lever og råder, en sann Gud fra evighet og til evighet.
 
 ## Tekstrekker
 

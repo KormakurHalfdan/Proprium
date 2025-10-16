@@ -1,6 +1,6 @@
 # Søndag før pinse
 
-Kjent som **7. søndag etter påske** frem til liturgirevisjonen 2011.  
+Kjent som **6. søndag etter påske** frem til liturgirevisjonen 2011.  
 Farge: hvit
 
 ## Introitus – Salme ved inngang
@@ -14,9 +14,9 @@ Farge: hvit
 
 Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
 
-## Prekestolbønn
+## Kollektbønn 2 (Dietrich/FBB)
 
-Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
+Herre Gud, himmelske Far! Vi takker deg fordi du ved din Hellige Ånd har satt oss til å vitne om din Sønn, vår kjære Herre Jesus Kristus. Siden verden ikke tåler dette vitnesbyrd, men står oss imot på alle kanter, ber vi deg: Gi oss frimodighet og trøst, så vi ikke tar anstøt av korset, men holder fast ved vitnesbyrdet, og alltid finnes i den flokk som kjenner deg og din Sønn, inntil vi blir evig salige, ved denne din elskede Sønn, Jesus Kristus, vår Herre, som med deg lever og råder i Den Hellige Ånds enhet, en sann Gud fra evighet og til evighet.
 
 ## Tekstrekker
 

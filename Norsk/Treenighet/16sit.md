@@ -19,7 +19,7 @@ Farge: grønn
 
 O Herre, la din evige nåde rense og bevare din kirke. Og ettersom den ikke kan stå støtt eller forbli salig uten deg, ber vi deg: La den alltid styres ved dine gaver, og ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
 
-## Kollektbønn 2
+## Kollektbønn 2 (Dietrich/FBB)
 
 Allmektige Gud, himmelske Far! Vi takker deg for alle dine velgjerninger imot oss, du som har gitt oss livet og nådig holdt oss oppe til denne dag. Vi ber deg: Ta ikke din velsignelse fra oss, men vokt oss for gjerrighet, så vi ikke tjener Mammon og ødelegger vår sjel med avgudsdyrkelse. Gi oss å elske deg og tjene deg alene, og bli fast hos deg idet vi setter all vår lit til din nåde, ved din elskede Sønn, Jesus Kristus, vår Herre, som med deg og Den Hellige Ånd lever og råder, en sann Gud fra evighet og til evighet.
 

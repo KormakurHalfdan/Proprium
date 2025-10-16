@@ -15,9 +15,9 @@ Farge: grønn
 
 Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
 
-## Prekestolbønn
+## Kollektbønn 2 (Dietrich/FBB)
 
-Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
+Allmektige Gud, himmelske Far! Vi takker deg fordi du har innsatt ekteskapets hellige ordning, og der gir oss hjemmets velsignelse og vern mot utukt og anstøt. Vi ber deg: Hjelp alle ektefolk så de ikke gir årsak til vrede og strid, men lever sammen i kjærlighet og fred, og i din frykt hjelper hverandre frem mot det evige liv. Gi oss å oppdra våre barn etter din vilje, vandre for ditt ansikt i et rent og hellig levnet, og bevares gjennom all nød og fristelse, inntil vi engang går inn til Lammets bryllup, ved din elskede Søna, Jesus Kristus, vår Herre, som med deg og Den Hellige Ånd lever og råder, en sann Gud fra evighet og til evighet.
 
 ## Tekstrekker
 

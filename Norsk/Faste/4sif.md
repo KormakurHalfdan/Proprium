@@ -18,9 +18,9 @@ Farge: fiolett. Noen tradisjoner bruker lysere fiolett eller rosa denne søndage
 
 Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
 
-## Prekestolbønn
+## Kollektbønn 2 (Dietrich/FBB)
 
-Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
+Allmektige Gud, himmelske Far, du som ved din Sønn rikelig mettet de fem tusen i ørkenen, vi ber deg: Vær nådig hos oss med din Hellige Ånd, så vi ikke arbeider for den mat som forgår, men for den som varer ved og gir evig liv, det levende brød som kommer ned fra himmelen, ved denne din elskede Sønn, Jesus Kristus, vår Herre, som med deg lever og råder i Den Hellige Ånds enhet, en sann Gud fra evighet og til evighet.
 
 ## Tekstrekker
 

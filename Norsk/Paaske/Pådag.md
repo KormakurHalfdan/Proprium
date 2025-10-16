@@ -18,9 +18,13 @@ Påskedag feires tidligst 22. mars og senest 25. april.
 
 Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
 
-## Prekestolbønn
+## Kollektbønn 2 (Dietrich/FBB)
 
-Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
+Herre, du levende Gud, himmelske Far! Vi priser ditt hellige navn, og takker deg fordi du ga din Sønn Jesus Kristus i døden for våre overtredelser og reiste ham opp til vår rettferdiggjørelse. Vi ber deg: Styr og led oss ved din Hellige Ånd og bevar oss i en sann tro, vokt oss mot alle synder, og vekk oss etter dette liv opp til det evige liv, ved denne din elskede Sønn, Jesus Kristus, vår Herre, som med deg lever og råder i Den Hellige Ånds enhet, en sann Gud fra evighet og til evighet.
+
+#### 2. Påskedag
+
+Herre Gud, himmelske Far, du som åpenbarte din Sønn for de to disiplene på veien til Emmaus, vi ber deg: Opplys også våre hjerter ved ditt ord og din Hellige Ånd, så vi blir grunnfestet i troen, holder fast på ditt ord, gjerne taler om det og bruker det med flid. Og om vi etter Kristi eksempel skulle lide mye vondt her på jorden, så la oss alltid ha en sann trøst av ditt ord, til vi etter dette liv vekkes opp til det evige liv, ved din elskede Sønn, Jesus Kristus, vår Herre, som med deg lever og råder i Den Hellige Ånds enhet, en sann Gud fra evighet og til evighet.
 
 ## Tekstrekker
 

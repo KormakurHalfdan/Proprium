@@ -15,7 +15,7 @@ Farge: grønn
 
 Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ånd lever og råder, én sann Gud fra evighet til evighet. Amen.
 
-## Kollektbønn (Dietrich)
+## Kollektbønn 2 (Dietrich/FBB)
 
 Hellige Gud, himmelske Far! Du har åpenbart din hellige lov og avslørt at vi er fattige og fortapte syndere for deg. Din vilje kjenner vi, men på grunn av kjødet er vår maktesløshet så stor at det er umulig for oss å oppfylle den, og den onde frister vil heller ikke la oss i fred. Vi ber deg: Utøs rikelig din Hellige Ånd over oss, så vi i en sann tro holder oss hårdt til din Sønn, Jesus Kristus, og trøster oss til hans lidelse og død. Gi oss å vandre i et hellig levnet, og så, når vår time kommer, av din nåde få en salig død, ved din elskede Sønn, Jesus Kristus, vår Herre, som med deg og Den Hellige Ånd lever og råder, en sann Gud fra evighet og til evighet.
 
