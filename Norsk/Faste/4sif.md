@@ -32,7 +32,7 @@ Allmektige Gud, himmelske Far, du som ved din Sønn rikelig mettet de fem tusen 
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 
-## Graduale
+## Tractus
 
 **L:** x (vers)  
 **A: x (vers)**  

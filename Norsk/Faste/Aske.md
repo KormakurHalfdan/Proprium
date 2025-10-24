@@ -31,7 +31,7 @@ Ved din elskede sønn, Jesus Kristus, vår herre, som med deg og Den Hellige Ån
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 
-## Graduale
+## Tractus
 
 **L:** x (vers)  
 **A: x (vers)**  

@@ -33,7 +33,7 @@ Herre Gud, himmelske Far! Vi takker deg fordi du lot din enbårne Sønn, Jesus K
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 
-## Graduale
+## Tractus
 
 **L:** x (vers)  
 **A: x (vers)**  
