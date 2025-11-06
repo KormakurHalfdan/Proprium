@@ -4,9 +4,12 @@ Eða **22. sunnudagur eftir hvítasunnu**.
 Skrúði grænn
 
 ## Introitus – Inngöngusálmur
-
-**L:** x (vers)  
-**A: x** (vers)  
+**L:** Drottinn, Drottinn og almáttugi konungur. Allur alheimur er á þínu valdi.
+**A: Enginn getur hindrað þig ef þú vilt frelsa Ísrael.**
+**L:** Þú hefur skapað himin og jörð
+**A: og allt hið undursamlega undir himninum.** (Gr Est C,2-3)
+**L:** Sælir eru þeir sem breyta grandvarlega, 
+**A: þeir er fram ganga í lögmáli Drottins.** (Sálm 119,1)
 **L:** Dýrð sé Guði, Föður, Syni og Heilögum Anda  
 **A: svo sem var í upphafi, er enn og verða mun um aldir alda. Amen.**  
 

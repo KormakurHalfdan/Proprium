@@ -6,8 +6,12 @@ Farge: grønn
 
 ## Introitus – Salme ved inngang
 
-**L:** x (vers)  
-**A: x** (vers)  
+**L:** Herre, Herre, du konge som hersker over alle, hele verdensaltet er i din makt,
+**A: og ingen kan gå imot din vilje hvis du vil redde Israel.**
+**L:** For det er du som har skapt himmelen og jorden
+**A: og alt det underfulle som finnes under himmelen. Du er Herren over alle ting.** (Gr Est 4,19-21a)
+**L:** Salige er de som går de oppriktiges vei
+**A: som vandrer i Herrens lov.** (Sal 119,1)
 **L:** Ære være Faderen og Sønnen og Den Hellige Ånd,  
 **A: som det var i begynnelsen, så nå og alltid, i all evighet. Amen.**  
 
