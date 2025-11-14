@@ -24,8 +24,8 @@ Allmektige Gud, himmelske Far! Vi takker deg fordi du gir oss fred i landet, og 
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**<br>=6siå| Salme 126,1–6<br>Fil 1,2–6<br>Joh 6,63–69|Salme 119,80–83<br>Kol 1,24–2,3<br>Luk 12,35–40|Ordsp 4,18–27<br>Åp 22,12–21<br>Mark 13,14–27|
+|**DNK 2011**<br>=6siå| Salme 126,1–6<br>Fil 1,2–6<br>Joh 6,63–69|Salme 119,80–83<br>Kol 1,24–29<br>Luk 12,35–40|Ordsp 4,18–27<br>Åp 22,12–17<br>Mark 13,21–27|
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

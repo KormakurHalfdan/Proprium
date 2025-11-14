@@ -5,8 +5,10 @@ Skrúði grænn
 
 ## Introitus – Inngöngusálmur
 
-**L:** x (vers)  
-**A: x** (vers)  
+**L:** Ef þú, Drottinn, gæfir gætur að misgjörðum, Drottinn, hver fengi þá staðist?
+**A: En hjá þér er fyrirgefning, svo að menn óttist þig.** (Sálm 130:3-4)  
+**L:** Úr djúpinu ákalla ég þig, Drottinn,
+**A: Drottinn, heyr þú raust mína** (Sálm 130:1-2a)
 **L:** Dýrð sé Guði, Föður, Syni og Heilögum Anda  
 **A: svo sem var í upphafi, er enn og verða mun um aldir alda. Amen.**  
 

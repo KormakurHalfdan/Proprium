@@ -31,8 +31,8 @@ Barmhjertige Gud, himmelske Far! Vi takker deg av hjertets grunn fordi du har la
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**| Jes 27,2–6<br>1 Kor 1,1–10<br>Matt 20,1–16|5 Mos 8,7-18 <br>1 Kor 3,4–11<br>Luk 17,7–10|Jer 9,23–24<br>Fil 3,7–14<br>Matt 19,27–30 |
+|**DNK 2011**| Jes 27,2–6<br>1 Kor 1,1–3<br>Matt 20,1–16|5 Mos 8,7.11–18<br>1 Kor 3,4–11<br>Luk 17,7–10|Jer 9,23–24<br>Fil 3,7–14<br>Matt 19,27–30 |
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

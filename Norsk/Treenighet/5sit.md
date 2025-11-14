@@ -24,8 +24,8 @@ Herre Gud, himmelske Far, du som er barmhjertig, og ved Jesus Kristus har lovet 
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**|Jer 23,16–24<br>1 Joh 4,1–6<br>Matt 7,15–20|Ordsp 7,1–3<br>1 Kor 3,10–18<br>Matt 7,21–29|Jer 6,16–19<br>Gal 1,6–9<br>Matt 18,12–18 |
+|**DNK 2011**|Jer 23,16–24<br>1 Joh 4,1–6<br>Matt 7,15–20|Ordsp 7,1–3<br>1 Kor 3,10–18<br>Matt 7,21–29|Jer 6,16–19<br>Gal 1,6–9<br>Matt 18,12–18 |
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

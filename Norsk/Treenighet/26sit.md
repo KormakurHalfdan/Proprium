@@ -24,8 +24,8 @@ Herre Gud, himmelske Far! Vi takker deg fordi du ved ditt ord har åpnet vei for
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**<br>=4siå|Salme 146,1–10<br>Rom 16,25–27<br>Luk 18,35–43|2 Mos 3,7–12; 4,10–16<br>Rom 9,13–24<br>Joh 9,1–11.(12-35a) 35b–41|Ordsp 14,21–22.25.31<br>Fil 1,20<br>Luk 13,10–17 |
+|**DNK 2011**<br>=4siå|Salme 146,1–10<br>Rom 16,25–27<br>Luk 18,35–43|2 Mos 3,10–12; 4,10–16<br>Rom 9,20–24<br>Joh 9,1–7.35b–38|Ordsp 14,21–22.25.31<br>Fil 1,20<br>Luk 13,10–17 |
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

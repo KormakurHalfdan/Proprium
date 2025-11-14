@@ -24,8 +24,8 @@ Herre Gud, himmelske Far, du som ved din Sønn rikelig mettet de mange tusen i �
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**|2 Mos 32,1–4.30–35<br>1 Joh 2,15–23<br>Matt 6,19–24|2 Mos 36,2–7<br>2 Kor 8,9–15<br>Mark 12,37b–44|Jos 22,1–6<br>Fil 1,9–11<br>Mark 12,28–34 |
+|**DNK 2011**|2 Mos 32,1–4.30–35<br>1 Joh 2,15–17<br>Matt 6,19–24|2 Mos 36,2–7<br>2 Kor 8,9–15<br>Mark 12,37b–44|Jos 22,1–6<br>Fil 1,9–11<br>Mark 12,28–34 |
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

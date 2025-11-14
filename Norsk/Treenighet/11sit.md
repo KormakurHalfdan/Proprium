@@ -24,8 +24,8 @@ Allmektige, evige Gud! Vi lover og priser deg fordi du ved din Hellige Ånd har 
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**| Jes 64,5–65,2<br>Rom 9,1–5; 10,1–4 <br>Matt 23,34–39|2 Mos 20,1–17<br>Gal 5,1–6<br>Mark 2,23–28|1 Mos 21,9–13<br>Rom 8,1–11<br>Joh 8,31–36|
+|**DNK 2011**|Jes 64,6b–65,2<br>Rom 9,2–5; 10,1–4<br>Matt 23,37–39|2 Mos 20,1–17<br>Gal 5,1–6<br>Mark 2,23–28|1 Mos 21,9–13<br>Rom 8,1–4.14–18<br>Joh 8,31–36|
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

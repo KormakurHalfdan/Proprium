@@ -24,8 +24,8 @@ Allmektige, evige Gud! Av din evige godhet har du skapt alle ting. Vi takker deg
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**|Salme 92,2–6.13–16<br>1 Kor 12,4–11<br>Matt 25,14–30|2 Krøn 1,7–12<br>Ef 4,11–16<br>Luk 12,41–48|2 Mos 18,13–24<br>Apg 6,1–7<br>Joh 15,13–17|
+|**DNK 2011**|Salme 92,2–6.13–16<br>1 Kor 12,4–11<br>Matt 25,14–30|2 Krøn 1,7–12<br>Ef 4,11–16<br>Luk 12,41–48|2 Mos 18,13–24<br>Apg 6,1–7<br>Joh 15,13–17|
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

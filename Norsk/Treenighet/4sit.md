@@ -24,8 +24,8 @@ Herre Gud, himmelske Far! Vi er alle som villfarende får, og har latt Satan og 
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**| 1 Mos 25,27–34<br>1 Kor 9,24–27<br>Mark 10,17–27|Jos 24,19–24<br>Ef 2,1–10<br>Matt 16,24–27|Salme 22,8–12<br>1 Tess 2,5–13<br>Matt 9,35–38 |
+|**DNK 2011**| 1 Mos 25,27–34<br>1 Kor 9,24–27<br>Mark 10,17–27|Jos 24,19–24<br>Ef 2,1–10<br>Matt 16,24–27|Salme 22,8–12<br>1 Tess 2,5–13<br>Matt 9,35–38 |
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

@@ -24,8 +24,8 @@ Allmektige, evige Gud, du som har lovet oss syndenes forlatelse og frelse fra al
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**<br>=5siå| 1 Mos 15,1–6<br>Rom 4,1–8<br>Mark 2,1–12|Salme 107,1. 23–32 <br>2 Kor 1,3–11<br>Matt 14,22–36 |Salme 103,1–6<br>Jak 5,13–20<br>Joh 5,1–15 |
+|**DNK 2011**<br>=5siå| 1 Mos 15,1–6<br>Rom 4,1–8<br>Mark 2,1–12|Salme 107,23–32<br>2 Kor 1,8–11<br>Matt 14,22–34|Salme 103,1–6<br>Jak 5,13–16<br>Joh 5,1–15 |
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

@@ -24,8 +24,8 @@ Hellige Gud, himmelske Far! Vi takker deg av hjertet fordi du har latt oss kjenn
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**|Hos 4, 1-3 og 6, 1-3<br>Rom 8,31–39<br>Matt 11,25–30 |Salme 145,8–18<br>1 Kor 4,1–5 <br>Joh 8,2–11|1 Mos 4,8–15<br>Rom 14,10–13<br>Luk 6,36–42 |
+|**DNK 2011**|Hos 6,1–3<br>Rom 8,31–39<br>Matt 11,28–30|Salme 145,9–16<br>1 Kor 4,3–5<br>Joh 8,2–11|1 Mos 4,8–15<br>Rom 14,10–13<br>Luk 6,36–42 |
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

@@ -24,8 +24,8 @@ Allmektige, evige Gud! Vi lover og priser deg fordi du har grunnfestet ditt rike
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**<br>=3siå|1 Mos 1,26–31<br>Åp 21,1–11<br>Joh 2,1–11|Jes 55,1–7<br>Åp 22,16–17<br>Joh 4,4–26|2 Mos 3,13–15<br>1 Kor 8,5–6<br>Joh 1,15–18|
+|**DNK 2011**<br>=3siå|1 Mos 1,26–31<br>Åp 21,1–6<br>Joh 2,1–11|Jes 55,1–3<br>Åp 22,16–17<br>Joh 4,4–26|2 Mos 3,13–15<br>1 Kor 8,5–6<br>Joh 1,15–18|
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

@@ -24,8 +24,8 @@ Hellige Gud, himmelske Far! Vi ber deg at du ved din Hellige Ånd vil styre vår
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**| Neh 9,19–21<br>Hebr 13,5–6<br>Matt 6,24–34|Ordsp 31,10-12. 25-31 <br>1 Tim 2,8-15<br>Luk 8,1–3|4 Mos 13,17–27<br>Rom 1,16–17<br>Joh 4,27–42|
+|**DNK 2011**| Neh 9,19–21<br>Hebr 13,5–6<br>Matt 6,24–34|Jes 49,13–16<br>2 Kor 9,1–8<br>Luk 8,1–3|4 Mos 13,17–27<br>Rom 1,16–17<br>Joh 4,27–30.39–43|
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

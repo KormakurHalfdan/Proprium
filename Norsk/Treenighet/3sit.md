@@ -24,8 +24,8 @@ Herre Gud, himmelske Far! Vi takker deg fordi du ved ditt hellige ord har kalt o
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**|Jes 25,6–9<br>Åp 19,5–9<br>Luk 14,15–24|Jes 50,4–5<br>Rom 8,28–30<br>Joh 1,35–51|1 Sam 1,9–18<br>1 Joh 2,28 – 3,3<br>Mark 10,13–16|
+|**DNK 2011**|Jes 25,6–9<br>Åp 19,5–9<br>Luk 14,15–24|Jes 50,4–5<br>Rom 8,28–30<br>Joh 1,35–51|1 Sam 1,9–18<br>1 Joh 3,1–3<br>Mark 10,13–16|
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

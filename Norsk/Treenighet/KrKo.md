@@ -24,8 +24,8 @@ Hellige, allmektige Gud! Vi takker deg fordi du har opphøyet din enbårne Sønn
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**|Jes 57,14–21 <br>Åp 20,11–15 <br>Matt 25,31–46|Job 28,20–28<br>Kol 1,9–14<br>Matt 25,1–13|5 Mos 30,15–20<br>1 Kor 15,22–28<br>Joh 9,39–41|
+|**DNK 2011**|Jes 57,14–16<br>Åp 20,11–13<br>Matt 25,31–46|Job 28,20–28<br>Kol 1,9–14<br>Matt 25,1–13|5 Mos 30,15–20<br>1 Kor 15,22–28<br>Joh 9,39–41|
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

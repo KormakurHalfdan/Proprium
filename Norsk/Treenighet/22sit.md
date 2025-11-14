@@ -30,8 +30,8 @@ Barmhjertige Gud, himmelske Far, du som ved din Sønn Jesus Kristus har opprette
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**| 	Fork 4,17–5,6<br>Jak 3,2–12 <br>Matt 12,33–37|Ordsp 6,20–23a<br>Fil 2,1–4<br>Joh 12,34–43 |3 Mos 19,1–2.16–18.33–34<br>Jak 2,1–10<br>Luk 10,25–37 |
+|**DNK 2011**| 	Fork 4,17–5,6<br>Jak 3,7–12<br>Matt 12,33–37|Ordsp 6,20–23a<br>Fil 2,1–4<br>Joh 12,35–36|3 Mos 19,1–2.16–18.33–34<br>Jak 2,1–9<br>Luk 10,25–37 |
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

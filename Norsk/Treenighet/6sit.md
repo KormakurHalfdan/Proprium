@@ -28,8 +28,8 @@ Herre, du levende og trofaste Gud! Vi lover og priser ditt hellige navn fordi du
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**|1 Mos 12,1–4<br>Rom 1,1–6<br>Luk 5,1–11|Jer 1,4–10<br>Apg 20,17–32<br>Matt 16,13–20|Jes 66,18–19<br>Apg 9,1–20<br>Mark 3,13–19 |
+|**DNK 2011**|1 Mos 12,1–4<br>Rom 1,1–7<br>Luk 5,1–11|Jer 1,4–10<br>Apg 20,24–32<br>Matt 16,13–20|Jes 66,18–19<br>Apg 9,1–19<br>Mark 3,13–19 |
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

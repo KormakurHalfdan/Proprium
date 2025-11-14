@@ -24,8 +24,8 @@ Hellige Gud, himmelske Far! Vi bekjenner at vi er fattige og hjelpeløse syndere
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**|1 Mos 16,1–16 <br>1 Joh 4,7–10<br>Luk 15,1–10|Ordsp 30,7–9<br>1 Tim 6,6-10 og 17–19<br>Luk 19,1–10|Salme 8,2–10<br>1 Kor 1,26–31<br>Mark 5,25–34|
+|**DNK 2011**|1 Mos 16,1–13<br>1 Joh 4,7–10<br>Luk 15,1–10|Ordsp 30,7–9<br>1 Tim 6,17–19<br>Luk 19,1–10|Salme 8,2–10<br>1 Kor 1,26–31<br>Mark 5,25–34|
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

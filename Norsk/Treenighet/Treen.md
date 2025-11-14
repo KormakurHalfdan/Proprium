@@ -24,8 +24,8 @@ Hellige Gud, himmelske Far! Du har ved din Sønn, Jesus Kristus, sagt oss at det
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**|5 Mos 6,4–9<br>1 Pet 2,4–10<br>Matt 28,16–20|1 Mos 18,1–8<br>Rom 11,25–36 <br>Luk 10,16–24 |Jes 6,1–8<br>Apg 17,22–34<br>Luk 24,45–49 |
+|**DNK 2011**|5 Mos 6,4–9<br>1 Pet 2,4–10<br>Matt 28,16–20|1 Mos 18,1–8<br>Rom 11,33–36<br>Luk 10,21–24|Jes 6,1–8<br>Apg 17,22–34<br>Luk 24,45–48|
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

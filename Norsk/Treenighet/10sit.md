@@ -24,8 +24,8 @@ Herre Gud, Himmelske Far, du som rikelig har velsignet vårt arbeid, og gitt oss
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**| Salme 32,1–11<br>1 Pet 3,8–17<br>Luk 5,27–32|1 Mos 50,14–21<br>2 Kor 13,11–13<br>Matt 18,21–35|1 Mos 33,1–11<br>Ef 4,22–32<br>Mark 11,22–26 |
+|**DNK 2011**| Salme 32,1–11<br>1 Pet 3,8–13<br>Luk 5,27–32|1 Mos 50,14–21<br>2 Kor 13,11–13<br>Matt 18,21–35|1 Mos 33,1–11<br>Ef 4,29–32<br>Mark 11,25–26|
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 

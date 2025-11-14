@@ -24,8 +24,8 @@ Herre Gud, himmelske Far, du som ved din Hellige Ånd vekker menneskers hjerter 
 | |**I**|**II**|**III**|
 |:---|:---:|:---:|:---:|
 |**Historisk**| <br> <br> | <br> <br> | <br> <br> |
-|**NELK 2023**| <br> <br> | <br> <br> | <br> <br> |
-|**DNK 2011**| <br> <br> | <br> <br> | <br> <br> |
+|**NELK 2023**| 2 Mos 14,13–22<br>Tit 3,4–7<br>Matt 3,11–12|Salme 67,1–8 <br>Gal 3,23–29<br>Joh 3,26–36 |Esek 36,25–29a<br>Rom 6,1–11 <br>Joh 3,1–15  |
+|**DNK 2011**|2 Mos 14,15–22<br>Tit 3,4–7<br>Matt 3,11–12|Salme 67,2–6<br>Gal 3,23–29<br>Joh 3,26–30|Esek 36,25–29a<br>Rom 6,3–8<br>Joh 3,1–13|
 |**Norge 1977**| <br> <br> | <br> <br> | <br> <br> |
 |**Norge 1918**| <br> <br> | <br> <br> | <br> <br> |
 
